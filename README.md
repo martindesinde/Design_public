@@ -1,4 +1,4 @@
-# Domaine public & culture libre
+# Design public
 
 La libre circulation de l'information, des œuvres, et plus généralement des savoirs de l'humanité est une des composantes majeures de la société future. L'information a toujours été source de conflit, et les exemples d'entrave à sa diffusion sont légions. Des gens informés, ce sont des gens actifs et capables d'action, c'est pourquoi l'accès libre et total des données est une nécessité.
 
